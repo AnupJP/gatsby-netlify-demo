@@ -7,9 +7,7 @@ Read Time:2 min[](javascript:void(0))[](javascript:void(0))[](javascript:void(0)
 
 ![](https://c.ndtvimg.com/2022-08/i17sor2_ravindra-jadeja-afp_625x300_31_August_22.jpg?im=FaceCrop,algorithm=dnn,width=806,height=605 "Asia Cup 2022: Ravindra Jadeja Ruled Out With Injury, Axar Patel Named Replacement")
 
-Asia Cup: Ravindra Jadeja ruled out for the remained of the tournament.© AFP
-
-
+`Asia Cup: Ravindra Jadeja ruled out for the remained of the tournament.© AFP`
 
 India all-rounder Ravindra Jadeja was ruled out for the remainder of the Asia Cup having sustained a right knee injury, the Board of Control for Cricket in India (BCCI) said on Friday. Jadeja is currently under the supervision of the BCCI medical team. The BCCI named Axar Patel as Jadeja's replacement for the remainder of the tournament. Axar was earlier named as one of the standby players in the squad and will join the squad soon. Jadeja featured in both of India's game in the group stage, against Pakistan and Hong Kong, respectively.
 
